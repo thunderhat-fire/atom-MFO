@@ -8,7 +8,7 @@ Copyrighted and license protected -Disclaimer!
 
 No copyright infringement intended. All rights and credits go directly to their rightful owners! All the uploads on this channel are for promotional purposes only. If any of the legal owners do not want their music on YouTube please send a private message and the video will be deleted on request.
 
-Please be aware that if you are using the MFO music label as a source of distribution - you should make sure you have appropriate and proper legal rights to cover and play. If you are unsure about the cover you need - contact admin@music-festival.online
+Please be aware that if you are using the MFO music label as a source of distribution - you should make sure you have appropriate and proper legal rights to cover and play. If you are unsure about the cover you need - contact ross@xtransit.uk
 
 ---------------welcome to MFO----------------join here --https://xtransit.uk
 
